@@ -1,2 +1,2 @@
 # Lard
-ini merupakan projek babababa
+ini merupakan projek babababa lohhhhhhhhhhhhhhhhh
